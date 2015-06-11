@@ -1,3 +1,3 @@
 # Docs
 
-This is repositry provides some of the useful documents. 
+This repositry contains some documents. 
