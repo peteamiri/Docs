@@ -1,3 +1,10 @@
+The primary goal is to say Mohammad is the last prophet.
+The only Imam is Ebrahim
+All the leader after Mohammad are only political leader including the 12 Imamate in Shia doctrine
+All this is a man religion and not God's religion.
+
+Who said on the day of Judgement the twelef Imam will apear this is not what is in Quran
+
 # Mohammad
 He was born 570
 He died June 8th 632 at the age of 62
@@ -5,6 +12,7 @@ It is belived that he was predecesor of Ebrahim and his sone Esmaile
 It is also belive that Jesus was a predecessor of Ebrahim and his son Issac
 Mohammad start reciving messages on 610 at the age of 40
 After Mohammad death
+
 
 ## Kaliph
 Kaliph a person considered a political-religious successor to the Islamic prophet Muhammad
